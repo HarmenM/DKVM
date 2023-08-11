@@ -1,7 +1,7 @@
 # DKVM | De keuken van Mojet
-import van de oude website dekeukenvanmojet.nl
+Vroeger was dit mijn kookblog. Ik ben er maar mee gestopt.
 
-Op Github gezet voor de hosting, voor mezelf. En wie weet wie er nog wat aan heeft.
+Omdat ik de recepten zelf nog wel gebruik heb ik het op Github gezet voor de hosting. En wie weet wie er nog wat aan heeft.
 
 ## Inhoudsopgave
 ### Hoofdgerechten
