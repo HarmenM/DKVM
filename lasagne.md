@@ -1,5 +1,6 @@
 # Lasagne
 ## Ingrediënten
+### Rode saus
 - 400 gram Worteltjes
 - 1 Bleekselderij
 - 1 Rode ui
@@ -13,11 +14,13 @@
 - 100 ml Melk
 - Olijfolie
 
+### Bechamel
 - 25 gram Roomboter
 - 30 gram Bloem
 - 300 ml Melk
 - Zout of geraspte kaas
 
+### Lasagne
 - Lasagnebladen
 - 1 bol Mozzarella
 - Geraspte kaas
