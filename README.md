@@ -17,6 +17,7 @@ Omdat ik de recepten zelf nog wel gebruik heb ik het op Github gezet voor de hos
 - [Greek-style burrito's met Gyroskruiden](greek-style-burrito-s-met-gyroskruiden.md)
 - [Hertenbiefstuk met portsaus en kersen](hertenbiefstuk-met-portsaus-en-kersen.md)
 - [Hutspot met gembersiroop en gekarameliseerde geitenkaas](hutspot-met-gembersiroop-en-gekarameliseerde-geitenkaas.md)
+- [Kikkererwtencurry met quinoa](kikkererwtencurry-met-quinoa.md)
 - [Kip Tandoori](kip-tandoori.md)
 - [Kipfiletpakketje met kruiden, roomkaas en rauwe ham](kipfiletpakketje-met-kruiden-roomkaas-en-rauwe-ham.md)
 - [Lamsracks met honing-tijmsaus](lamsracks-met-honing-tijmsaus.md)
