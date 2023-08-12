@@ -31,7 +31,7 @@ Schil de wortel en snijd in kleine stukjes en snipper de ui. Pers de knoflooktee
 
 Maak de bechamelsaus. Smelt de boter en voeg de bloem toe. Laat de bloem al roerend garen totdat het een licht kleurtje krijgt. Voeg de resterende melk in delen toe en roer met een garde zodat er een egaal mengsel ontstaat. Voeg eventueel nog extra melk toe om de juiste consistentie te bereiken. Breng op smaak met zout en peper.
 
-Snijd de cherrytomaatjes in tweeën. Verwarm de oven voor op 180 graden. Vet een ovenschaal in met olijfolie. Doe wat van het tomatenmengsel en bechamelsaus in de schaal. Leg wat gehalveerde cherrytomaatjes er bovenop. Sluit af met een laag lasagnebladen. Herhaal dit nog een aantal keer. Bestrooi het mengsel met de geraspte kaas. Bak de lasagne in circa 45 minuten af.
+Snijd de cherrytomaatjes in tweeën en snijd de mozzarella in stukjes. Verwarm de oven voor op 200 graden. Vet een ovenschaal in met olijfolie. Doe wat van het tomatenmengsel en bechamelsaus in de schaal. Leg wat gehalveerde cherrytomaatjes en mozzarella er bovenop. Sluit af met een laag lasagnebladen. Herhaal dit nog een aantal keer. Bestrooi het mengsel met de geraspte kaas. Bak de lasagne in circa 40 minuten af. Laat nog even afkoelen voordat je gaat eten.
 
 ## Credits
 [De basis van dit recept is een samenraapsel van lasagnerecepten, waaronder deze van Keukenliefde.](https://www.keukenliefde.nl/traditionele-lasagne/)
