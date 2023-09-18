@@ -7,6 +7,7 @@
 - 4 tenen knoflook
 - Italiaanse kruiden
 - 2 tl Kaneel
+- 300 gram Rundergehakt
 - 70 gram Tomatenpuree
 - 500 gram Passata (gezeefde tomaten)
 - Bouillonblokje
