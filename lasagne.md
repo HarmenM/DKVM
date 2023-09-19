@@ -28,7 +28,7 @@
 - Cherrytomaatjes 
 
 ## Bereiding
-Schil de wortel en snijd in kleine stukjes en snipper de ui. Pers de knoflookteentjes. Fruit de wortel, ui en knoflook op middelhoog vuur voor enkele minuten. Doe de provençaalse kruiden en de kaneel bij het mengsel. Voeg het gehakt toe en rul het gehakt. Voeg hierna de tomatenpuree mee en laat het gehakt garen. Voeg de rode wijn. Verkruimel het bouillonblokje en voeg de passata toe. Laat een uur inkoken. Vergeet niet af en toe te roeren. Doe hierna de melk erbij en laat weer een uur inkoken.
+Schil de wortel en snijd in kleine stukjes. Snijd de bleekselderij in stukjes en snipper de ui. Pers de knoflookteentjes. Fruit de wortel, ui, bleekselderij en knoflook op middelhoog vuur voor enkele minuten. Doe de provençaalse kruiden en de kaneel bij het mengsel. Voeg het gehakt toe en rul het gehakt. Voeg hierna de tomatenpuree mee en laat het gehakt garen. Voeg de rode wijn. Verkruimel het bouillonblokje en voeg de passata toe. Laat een uur inkoken. Vergeet niet af en toe te roeren. Doe hierna de melk erbij en laat weer een uur inkoken.
 
 Maak de bechamelsaus. Smelt de boter en voeg de bloem toe. Laat de bloem al roerend garen totdat het een licht kleurtje krijgt. Voeg de resterende melk in delen toe en roer met een garde zodat er een egaal mengsel ontstaat. Voeg eventueel nog extra melk toe om de juiste consistentie te bereiken. Breng op smaak met zout en peper.
 
